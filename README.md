@@ -30,7 +30,7 @@ I’m a passionate **Full Stack Developer** with 5+ years of hands-on experience
 
 ### 📫 Let's Connect
 
-📧 [rahulpaul0009@gmail.com](mailto:rahulpaul0009@gmail.com)  
+📧 [curd.rahul@gmail.com](mailto:curd.rahul@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/rahul-paul-b50388176)
 
 ---
